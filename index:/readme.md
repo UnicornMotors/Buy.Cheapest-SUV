@@ -1,2 +1,4 @@
 - [Jeep Cherokee 98 model $500 Listed a day ago in Batesville, AR](https://www.facebook.com/marketplace/item/719488544305366)
 - [2003 excursion $1,000$1,500 Listed a day ago in Whitehouse, TX](https://www.facebook.com/marketplace/item/790623406809075)
+- [2000 Chevrolet blazer Sport Utility 4D $300 Listed 5 hours ago in Tallapoosa, GA](https://www.facebook.com/marketplace/item/1214666944006604)
+- [](url)
